@@ -1,4 +1,4 @@
-
+Irina for macOS advanced App - file-encryption and OCR-support offers the most advanced Irina for macOS app, with file-encryption and OCR-support. Ideal for macOS power users.
 
 
 
